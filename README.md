@@ -1,2 +1,2 @@
 # universal aero parts
-# coming soon : page under construction !
+# coming soon page under construction !
